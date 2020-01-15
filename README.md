@@ -1,1 +1,1 @@
-visa_2019_cloturer_sa_formation
+visa_cloturer_sa_formation
